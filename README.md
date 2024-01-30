@@ -1,0 +1,2 @@
+# Pixabay-Images-Slider-Assignment
+ 
